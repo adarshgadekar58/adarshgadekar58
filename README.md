@@ -31,7 +31,7 @@
 
 <br/>
 
-## ⚡ 30-Second Recruiter Scan
+## ⚡ 30-Second About Me
 
 | | |
 |:--|:--|
